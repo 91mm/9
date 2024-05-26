@@ -22,34 +22,34 @@ https://www.xhg91.com/?iuid=138677
 
 💤红豆👙（看片神器）
 
-https://22j103nga.amybekl.xyz/ice22364
+https://22j103sy.llfbjyz.xyz/ice22364
 
 
 💤东京热👙（看片神器 ）
 
-https://7j103eyns.pcplppo.xyz/ice7394
+https://7j103vd.jvewcfz.xyz/ice7394
 
 
 💤91🔞视频👙（成人版抖音
 ）邀请码 2JTB04 （输入邀请码领取会员）
 
-https://app.8d77.ltd/i-2JTB04
+https://app.6uk3.ltd/i-2JTB04
 
 
 💤一本道👙（看片神器）
 
-https://1j103uzn.ewydfnr.xyz/ice12615
+https://1j103zq.weaksfn.xyz/ice12615
 
 
 💤嗨皮乐🔞（全国各地约炮信息）
 
-https://m.zimeitiyunyingguan.top/go/?r=115.1715783539872327&fid=232963
+https://m.douyaculture.xyz/go/?r=162.171673763653095&fid=232963
 
 
 💤秘密🔞情人👙（全国各地约炮信息）
 邀请码5670913
 
-https://t1.mmq1.xyz/?t=5670913
+https://t2.mdh6.vip?t=5670913
 
 
 💤69🔞风流👙（全国各地约炮信息）
